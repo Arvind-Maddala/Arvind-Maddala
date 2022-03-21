@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **maddala.aravind00@gmail.com**
 
-- 📄 Know about my experiences [here](https://docs.google.com/document/d/1xS2DhBAEN1EzCgGUC5ptIUVf8sOgNW2g/edit?usp=sharing&ouid=109503517964734025597&rtpof=true&sd=true)
+- 📄 Know about my experiences [here](https://docs.google.com/document/d/1pWtvYfIPktTAsyT6S-sgVPQA6cnoZI4li_ITnt_Zp64/edit?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
